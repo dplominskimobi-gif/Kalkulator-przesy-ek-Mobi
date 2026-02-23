@@ -1,0 +1,1 @@
+# Kalkulator-przesy-ek-Mobi
